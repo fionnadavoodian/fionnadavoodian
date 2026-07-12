@@ -6,4 +6,4 @@ I enjoy building data-driven applications and understanding models deeply — fr
 
 ## 📫 Contact
 
-LinkedIn: https://linkedin.com/in/fionna-davoodian  
+Email: fionnadavoodian@gmail.com  
